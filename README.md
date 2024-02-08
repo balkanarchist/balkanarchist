@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @balkanarchist
 - 👀 I’m interested in learning about foreign cultures...and now coding!
 - 🌱 I’m currently learning the absolute basics.
-- 💞️ I’m looking to collaborate on ... question mark.
+- 💞️ I’m looking to collaborate on ... TBD.
 - 📫 How to reach me ... I'm like the Four Tops. Just reach out and I'll be there.
 - 😄 Pronouns: ... He/him
 - ⚡ Fun fact: ... I've lived in seven countries. A couple of them twice.
